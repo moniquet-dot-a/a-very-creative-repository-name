@@ -1,0 +1,1 @@
+## Завдання 6 (UI дезайнер): (https://app.moqups.com/cZuyp145iJvW8vNxVb2hX01B7ARU7N2X/view/page/ad64222d5)
